@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DieppaL
-- 👀 I’m interested in college
+- 👀 I’m interested in music
 - 🌱 I’m currently learning about life
 
 <!---
